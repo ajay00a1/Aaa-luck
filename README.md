@@ -1,2 +1,2 @@
 # Aaa-luck
-https://chatgpt.com/canvas/shared/685cb783dd3c81918c048ca7034becc8
+http://www.goaok.info/#/register?invitationCode=447534055847
